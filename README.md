@@ -1,1 +1,1 @@
-\nVan Sang Nguyen
+Van Sang Nguyen
